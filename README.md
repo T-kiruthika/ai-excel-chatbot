@@ -122,7 +122,8 @@ B.Tech – Artificial Intelligence & Data Science
 
 📍 Tamil Nadu, India
 
-🌐 LinkedIn: Kiruthika T
+🌐 LinkedIn: [Kiruthika T](https://www.linkedin.com/in/your-linkedin-username/)
+
 
 ---
 
